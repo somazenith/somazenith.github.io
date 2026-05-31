@@ -1,1 +1,0 @@
-# somazenith.github.io
